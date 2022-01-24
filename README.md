@@ -1,1 +1,1 @@
-Client Solutions Director, EMEA
+Client Solutions Director, EMEA @ Ripple
